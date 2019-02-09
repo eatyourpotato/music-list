@@ -57,7 +57,7 @@
     Hot Chip - Thieves in the Night    (happy sauce 80)
     Hot Chocolate - Dance (Get Down to it)			(groovy un peu kitch)
     Hypnolove - La piscine (Voilaaa Remix)            (nu disco fr posé)
-    Hypnolove - La piscine (L'Impératrice Remix)    (groovy electro-funky nu disco)
+n   Hypnolove - La piscine (L'Impératrice Remix)    (groovy electro-funky nu disco)
     Joss Stone - Super Duper Love        (soul funky)
     Jamiroquai - Virtual Insanity		 (groovy posé)
     Justice - Safe and Sound       (grosses basses)
