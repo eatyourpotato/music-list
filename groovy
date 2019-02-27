@@ -81,6 +81,7 @@ n   Hypnolove - La piscine (L'Impératrice Remix)    (groovy electro-funky nu di
     Metronomy - The Bay        (groovy bass)
     Miami Horror - Sometimes   (pop groove)
     Miami Horror - Echoplex   (pop happy)
+n   Mind Enterprises - S.H.A.K.E (breakbot remix)           (groove électro tranquille) 
     Minuit - Paris tropical (Jean Tonique Remix)			(groove posé français)
     MGMT - Electric Feels   (pop groove)
     MGMT - Kids    (pop upbeat)
