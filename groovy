@@ -60,6 +60,7 @@
 n   Hypnolove - La piscine (L'Impératrice Remix)    (groovy electro-funky nu disco)
     Joss Stone - Super Duper Love        (soul funky)
     Jamiroquai - Virtual Insanity		 (groovy posé)
+n   Juice - Lizzo                   (façon disco dansant)
     Justice - Safe and Sound       (grosses basses)
     Justice - Stop					(french touch aérien)
     Kakkmaddafakka - Your Girl		(pop upbeat)
