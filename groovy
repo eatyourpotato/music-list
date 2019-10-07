@@ -87,6 +87,7 @@ n   Mind Enterprises - S.H.A.K.E (breakbot remix)           (groove électro tra
     MGMT - Electric Feels   (pop groove)
     MGMT - Kids    (pop upbeat)
     MFSB - Sexy		(Funky intru sautillant)
+n   Modest Mouse - Lampshades on Fire                       (brit rock groovy)
     Nile Rodgers - State of Mine (it's About Time)			(prosé groovy disco)
     Number One Ensemble - Back To Heaven					(italo disco groovy)
     Pacific - Runaway to Elsewhere (breakbot remix)        (electro groove façon daft punk tranquille)
