@@ -114,6 +114,7 @@ n   PhoMeme - The Less I Know the Sexy Back         (remix groovy de Tame Impala
     Rock Candy Funk Party - Don't Even Try it        (funk upbeat)
     Royksopp - Happy up here (Breakbot mix)          (groove tranquille un peu répétitif)
     Saint Etienne - Dive		(groove alternance posé et dansant)
+n   Saint Motel - My Type       (upbeat) 
     SANTIAGO - Mr love        (bon funk d'époque rythmé)
     Sheila & B. Devotion - Your Love is Good (Dimitri From Paris Remix)			(disco bien funky)
     Sister Sledge - Lost in music (Dimitri from Paris remix)        (disco bon goove)
