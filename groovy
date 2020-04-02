@@ -40,6 +40,7 @@
     Earth Wind & Fire - Let's Groove            (groove funky)
     Eckhardt And The House - If You Cannot Talk		(pop tranquille funky nu disco)
     Edwin Birdsong - Cola Bottle Baby 			(disco funk riff Harder better[...])
+n   Electro Deluxe - Sleepwalking               (nu disco goovy) 
     Elephanz - Curfew				(posé popouille groovy)
     Empire Of The Sun - Walking On A Dream     (pop groove tranquille)
     Fat Larry's Band - Act Like You Know    (funk fever 105)
