@@ -43,6 +43,7 @@
 n   Electro Deluxe - Sleepwalking               (nu disco goovy) 
     Elephanz - Curfew				(posé popouille groovy)
     Empire Of The Sun - Walking On A Dream     (pop groove tranquille)
+n   Escort - Cocaine                        (funk rock dansant) 
     Fat Larry's Band - Act Like You Know    (funk fever 105)
     Franc Moody - Dopamine					(poom-tchack très groovy)
     Fred Falke - 808 PM at the Beach		(instru nu-funky )
